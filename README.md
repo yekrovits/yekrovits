@@ -1,6 +1,6 @@
 
 #
-<sub> hornet / v22 enthusiast
+<sub> hornet / su57 enthusiast
 
 <sub> i draw too. [yekrovits.straw.page](https://yekrovits.straw.page/)
 

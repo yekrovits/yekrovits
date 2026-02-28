@@ -1,4 +1,4 @@
-<sub> military aviation enthusiast
+<sub> usaf enthusiast
 
 <sub> i draw too. [yekrovits.straw.page](https://yekrovits.straw.page/)
 

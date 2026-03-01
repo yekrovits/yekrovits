@@ -1,4 +1,5 @@
 <sub> usaf enthusiast (like, actually enlisting.)
+<sub> don't mind that the hornet is a navy plane..
 
 <sub> i draw too. [yekrovits.straw.page](https://yekrovits.straw.page/)
 

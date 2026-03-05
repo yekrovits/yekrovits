@@ -1,5 +1,3 @@
-<sub> i like aviation .. i gues .. s..
-
 <sub> i draw too. [yekrovits.straw.page](https://yekrovits.straw.page/)
 
 <sub> 🌙 : probably asleep , c+h freely

@@ -1,4 +1,4 @@
-<sub> i draw too. [yekrovits.straw.page](https://yekrovits.straw.page/)
+<sub> [yekrovits.straw.page](https://yekrovits.straw.page/)
 
 <sub> 🌙 : probably asleep/offtab , c+h freely
 

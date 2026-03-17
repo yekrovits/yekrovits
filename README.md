@@ -1,4 +1,4 @@
-<sub> 🟢 : c+h freely if i'm sitting alone - most likely offtab / online , but not interacting
+<sub> 🟢 : c+h freely if i'm sitting alone - most likely doing smth else ( using ponytown as bg noise
 
 <sub> 🌙 : probably asleep/offtab , c+h freely
 

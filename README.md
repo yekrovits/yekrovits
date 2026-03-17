@@ -1,4 +1,4 @@
-<sub> 🟢 : c+h freely if i'm sitting alone - most likely offtab
+<sub> 🟢 : c+h freely if i'm sitting alone - most likely offtab / online , but not interacting
 
 <sub> 🌙 : probably asleep/offtab , c+h freely
 

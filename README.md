@@ -1,4 +1,4 @@
-<sub> 🟢 : c+h freely if i'm sitting alone - most likely doing smth else ( using ponytown as bg noise
+<sub> 🟢 : im alive and well! joy!
 
 <sub> 🌙 : probably asleep/offtab , c+h freely
 
